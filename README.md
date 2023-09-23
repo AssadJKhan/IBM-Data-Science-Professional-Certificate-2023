@@ -4,6 +4,8 @@ IBM Data Science Coursera
 https://www.coursera.org/account/accomplishments/specialization/certificate/77M9DY4TQESC
 https://www.coursera.org/account/accomplishments/professional-cert/77M9DY4TQESC
 
+Credly profile: https://www.credly.com/users/assad-khan.ef59a1e6
+
 
 **Course Certificates Completed**
 
